@@ -1,0 +1,1 @@
+Entendi uns 90% do curso tem uma ou outra que não entendi, mas vou praticar para entender.
